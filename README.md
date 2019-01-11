@@ -1,2 +1,3 @@
 # Lighting
-we are to find something beautiful around the world
+We are to find something beautiful around the world
+Share things and grow tSogether,for our passion and what we called habit !
